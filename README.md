@@ -8,6 +8,9 @@
 - 😄 Pronouns: He/Him/You/Anything that gets my attention. Im not too picky.
 - ⚡ Fun fact: I've never been a animal person, and my GF very much is. She really wanted a cat and I was firmly againsy 
 I didn't want to share apartment with a animal or anything to do with them.
+My aversion against animals can probably be boiled down to three incidents:
+ • A mean swan that hit me prettt hard with his beak
+akn nd wouldn't stop
 I lost, but before she got the cat I was very firm that I would not take care of that Cat, it was her sole responsility.
 
 And so it was. Atleast the first 4-5 min after the cat came to live with us. Then my heart melted totally & since then im such a sucker for that cat, or Liston as I named him pretty quickly.
