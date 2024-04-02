@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on anything that seems interesting and fun
 - 📫 How to reach me message me here? Scream my name from a mountain top?
 - 😄 Pronouns: He/Him/You/Anything that gets my attention. Im not too picky.
-- ⚡ Fun fact: I've never been a animal person, and my GF very much is. She really wanted a cat and I was firmly againsy 
+- ⚡ Fun fact: I've never been a animal person, and my GF very much is. She really wanted a cat and I was firmly against 
 I didn't want to share apartment with a animal or anything to do with them.
 My aversion against animals can probably be boiled down to three incidents:
  • A mean swan that hit me prettt hard with his beak
