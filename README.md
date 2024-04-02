@@ -7,7 +7,7 @@
 - 📫 How to reach me: message me here or try Screaming my name from a mountain top?
 - 😄 Pronouns: He/Him/You/Anything that gets my attention. Im not too picky.
 - ⚡ Fun fact: I've never been a animal person, and my GF very much is. She really wanted a cat and I was firmly against 
-I didn't want to share apartment with a animal or anything to do with them.
+I had no interest sharing my living space with a animal or have anything to do with them.
 My aversion against animals can probably be boiled down to three incidents:
 • A mean swan that hit me prettt hard with his beak and took a whole lot of interference by my mother before the swan finally gave up. I was like 3 years, give or take a year.
  • Next animal who had something against me was a dog who thought I would be a good chewing toy
