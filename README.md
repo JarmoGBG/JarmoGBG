@@ -18,6 +18,7 @@ I lost, but before she got the cat I was very firm that I would not take care of
 
 And so it was. Atleast the first 4-5 min after the cat came to live with us. Then my heart melted totally & since then im such a sucker for that cat, or Liston as I named him pretty quickly.
 
+I/we didn't domesticate him, he domesticated me. And im totally fine with it. Qqå00åå0å
 He is now almost 4 years old and yes, I want atleast one more. I never thought I would be a cat person,
 but apparently I am. 
 <!--
