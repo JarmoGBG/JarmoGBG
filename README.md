@@ -10,7 +10,9 @@
 I didn't want to share apartment with a animal or anything to do with them.
 My aversion against animals can probably be boiled down to three incidents:
  • A mean swan that hit me prettt hard with his beak
-akn nd wouldn't stop
+   and took a whole lot of interference by my mother before the swan finally gave up. I was like 3 years, give or take a year.
+  • Next animal who had something against me was a dog who thought I would be a good chewing toy
+   
 I lost, but before she got the cat I was very firm that I would not take care of that Cat, it was her sole responsility.
 
 And so it was. Atleast the first 4-5 min after the cat came to live with us. Then my heart melted totally & since then im such a sucker for that cat, or Liston as I named him pretty quickly.
