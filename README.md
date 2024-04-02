@@ -14,10 +14,11 @@ My aversion against animals can probably be boiled down to three incidents:
  • Next animal who had something against me was a dog who thought I would be a good chewing toy
   • And the final culprit was a cat in finlad who gave me a serious beating while I was just playing in a sandlot enjoying myself and bothering none.
 
-So there we have the basics for me not being too keen on bringing in wildlife to where I live.
-I lost, but before she got the cat I was very firm that I would not take care of that Cat, it was her sole responsility.
+So there we have the basics for me not being too keen on bringing in wildlife to my living quarters. I lost, apparently the cat was coming living with us, the only question was if I would move out or coexist with the furry feline. Before she got the cat I was very firm that I would not take care of that Cat, it was her sole responsility.
 
-And so it was. Atleast the first 4-5 min after the cat came to live with us. Then my heart melted totally & since then im such a sucker for that cat, or Liston as I named him pretty quickly.
+And so it was. Atleast the first couple of minutes. Then it turned out that I had a very soft spot in my heart for this little fella. I surrendered to the feeling & since then im such a sucker for that cat, or Liston he was named pretty quickly.
+
+I tried even learning him some tricks, it ended with me be taught by the cat. When he gives me his paw it's candy time and I neeed to go get the goodie bag. Not as I imagined that it would be the other way round. 
 
 I/we didn't domesticate him, he domesticated me. And im totally fine with it. Qqå00åå0å
 He is now almost 4 years old and yes, I want atleast one more. I never thought I would be a cat person,
