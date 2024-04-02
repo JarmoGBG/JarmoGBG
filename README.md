@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JarmoGBG
-- 👀 I’m interested in almost everything, computers, coding, silversmithing & crocheting
+- 👀 I’m interested in way too many things, for example computers, coding, silversmithing & crocheting And lately leather work.
 - 
 - 🌱 I’m currently studying a C# .Net continuation course. To refresh my knowledge and learn about frontend, bootstrap, Azure and so forth
 - 
